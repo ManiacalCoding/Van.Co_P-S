@@ -1,0 +1,1 @@
+Do note this is a very basic document for now. All in all let me sum up what you can do: Make art, videos, pictures, and stuff that doesnt directly steal. What Im saying is please dont just copy and paste without crediting me. (In the future I may refind this.)
